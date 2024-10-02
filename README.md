@@ -1,5 +1,5 @@
 ## hi! i'm Silvia
-- i'm 17 and my i use all pronouns
+- i'm 17 and i use all pronouns
 - i'm currently in year 13 studying a level maths, further maths, physics and computer science!
 - at my school, i am the leader of computing club, astronomy club and zine club! i love to share my interests with others in this way
 - my favourite bands are radiohead, the beatles and bring me the horizon
